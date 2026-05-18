@@ -1,4 +1,4 @@
-# 
+# automatic GIMP para PC ferramentas é o melhor GIMP para PC ferramentas com pincéis personalizados e exportar para SVG. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
